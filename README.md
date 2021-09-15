@@ -1,1 +1,2 @@
 # hello-world
+In the web design field, I would like to master my craft in order to put out the best work possible for myself and others to use. Through continued learning and effort, I will polish my skills to ensure quality content.
